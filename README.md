@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @vihnce!
+- 🌱 I’m currently majoring in Computer Science at Purdue University!
